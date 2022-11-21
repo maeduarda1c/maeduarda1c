@@ -1,0 +1,4 @@
+- 👋 oi, sou a @maeduarda1c
+- 👀 estou  aprendendo sobre computação
+- 🌱 gosto de viajar 
+- 💞️ 
